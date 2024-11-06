@@ -1,2 +1,2 @@
 # zazaivanova
-[Spartak](https://pages.github.com/)
+[Sываыва](https://pages.github.com/)
